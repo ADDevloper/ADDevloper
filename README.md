@@ -1,6 +1,6 @@
 ## Hey, I'm Abhay 👋
 
-> 18-year-old founder. Building two startups in public.Letting the market decide which one wins.
+> 18-year-old founder. Building two startups in public. Letting the market decide which one wins.
 
 ---
 
