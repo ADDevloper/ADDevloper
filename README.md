@@ -41,7 +41,7 @@ Free. Always.
 
 📫 **How to reach me ...**
 - Email → 10developer2007@gmail.com
-- LinkedIn → Abhay Dewangan
+- LinkedIn → in/abhay-dewangan-15a204340
 
 ---
 
