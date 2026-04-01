@@ -42,7 +42,7 @@ Free. Always.
 📫 **How to reach me ...**
 - Email → 10developer2007@gmail.com
 - LinkedIn → in/abhay-dewangan-15a204340
-- Insta →
+- Insta → https://www.instagram.com/flow_lab.inc?igsh=MXR1bnFudWd0cWs3dw==
 
 ---
 
